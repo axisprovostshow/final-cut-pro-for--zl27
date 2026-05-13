@@ -1,4 +1,4 @@
-# 
+# updated Plugin for Final Cut Pro for macOS - collaboration-tools and compressor is the best Final Cut Pro for macOS plugin, featuring collaboration-tools and compressor. Safe,
 
 
 
